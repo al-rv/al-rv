@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi I'm Al:
 I am a Applied Data Intelligence graduate student at SJSU and a former banker with a Generalist mindset.<br>While the world pushes for specialization, I thrive on diversification - applying the financial "don't put all your eggs in one basket" philosophy to my skills, interests, and life experiences.<br>I'm a Forever Learner who believes that being a "Jack of all trades" is the best way to connect the dots between data, technology, and human behavior.
 
 
